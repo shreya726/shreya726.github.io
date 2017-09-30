@@ -1,1 +1,1 @@
-[shreya726.github.io][https://shreya726.github.io]
+[https://shreya726.github.io]
